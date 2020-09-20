@@ -1,1 +1,1 @@
-James MUriithi
+James Muriithi
